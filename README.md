@@ -1,2 +1,1 @@
-# hello-world
-just another repositily
+i just don't know say what,just recording.
